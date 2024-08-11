@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **harbhajan.official2002@gmail.com**
 
-- ⚡ Fun fact **I am Funny**
+- ⚡ Fun fact **Sometimes, I solve problems that I didn't even know I had.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
